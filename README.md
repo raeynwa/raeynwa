@@ -1,6 +1,6 @@
 👋 Hi, there
 
-I'am Raey Maulana Yunus
+I am Raey Maulana Yunus
 
 Check out my portfolio on https://raeynwa.my.id
 
